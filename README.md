@@ -1,0 +1,1 @@
+rownanie_kwadratowe
